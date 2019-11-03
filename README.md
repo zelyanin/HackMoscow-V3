@@ -1,1 +1,0 @@
-# HackMoscow-V3
